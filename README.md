@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rokugatsujuni
+- 👀 I’m interested in Making game and Watching Vtuber
+- 💞️ I’m looking to collaborate on Making games
+- 📫 How to reach me, send me DM on twitter https://twitter.com/rokugatsu_juni
